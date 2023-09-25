@@ -1,1 +1,1 @@
-# rishabhyadavm07.github.io
+# fanaticalnerd.github.io
